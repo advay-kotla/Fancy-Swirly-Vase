@@ -39,7 +39,7 @@ I also finalized the upper rim structure, ensuring the top opening remained a cl
 <img width="2398" height="1484" alt="image" src="https://github.com/user-attachments/assets/968175ee-31ca-43b5-bdcb-01f4a7c55d5c" />
 
 
-Journal Write #4 ---- Finalizing Proportions and Aesthetic Color Choices ----
+Journal Write #4 ---- Finalizing Proportions and Aesthetic Color Choices ----  1 hour
 
 The final hour was dedicated to refining the proportions and making crucial aesthetic decisions.
 
